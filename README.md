@@ -1,1 +1,1 @@
-![koding](https://github.com/gr0uch/gr0uch/assets/1175095/4d3c59b9-0424-4992-ae6d-fbc42b18497b)
+![koding](https://github.com/gr0uch/gr0uch/assets/1175095/256058c6-db6a-482e-a854-0eca9d42e3d6)
